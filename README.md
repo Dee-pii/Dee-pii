@@ -4,9 +4,6 @@
 - 🦺 Civil Engineer.
 - 🗄️ Management/HR/Administration. 
 - 📚 Bibliophile. 
-- ☕ I bleed caffeine. 
-- 🏋️‍♀️ Gymaholic. 
-- 🍨 Choc Mint > every other flavour. 
 - @DeepikaPremraj on Twitter. 
 - @deepikapremraj on Instagram. 
 
