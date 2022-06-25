@@ -2,8 +2,7 @@
 - 👀 I’m interested in levelling up. 
 - 🌱 I’m currently learning programming.
 - 🦺 Civil Engineer.
-- 🗄️ Management/HR/Administration. 
-- 📚 Bibliophile. 
+- 🗄️ Management/HR/Administration.
 - @DeepikaPremraj on Twitter. 
 - @deepikapremraj on Instagram. 
 
